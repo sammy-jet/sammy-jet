@@ -1,4 +1,4 @@
-Hi, I'm Junior 👋
+Hi, I'm Samuel 👋
 
 🩺 Medical Student | 🤖 AI Developer
 
